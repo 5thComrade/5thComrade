@@ -1,6 +1,6 @@
 ### Antony Chiramel
 
-#### Senior Associate Consultant at Infosys. Helping Infosys build compelling user interfaces.
+#### Currently helping Infosys build compelling user interfaces.
 
 #### Skills
 
