@@ -1,6 +1,6 @@
 ### Antony Chiramel
 
-#### Currently helping Infosys build compelling user interfaces.
+#### Currently helping Neeve.ai.
 
 #### Skills
 
